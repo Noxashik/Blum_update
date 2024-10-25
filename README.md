@@ -9,4 +9,4 @@ AUTO CLAIM FOR BLUM / Minhaj Chowdhury
 [![GitHub](https://img.shields.io/badge/GitHub-181717?style=for-the-badge&logo=github&logoColor=red)](https://github.com/Noxashik)
 
 
-#Join My Tg Channel 
+# Join My Tg Channel 
